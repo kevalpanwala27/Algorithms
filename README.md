@@ -1,1 +1,2 @@
 # Algorithms
+REVICE THIS CODES DAILY !!!
